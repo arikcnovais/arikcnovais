@@ -1,1 +1,1 @@
-Game and webapp developer, sysadmin, technican, cloud clown, joker of the class, I am a nerd overall
+I work as a petty game developer and a simple webapp developer. I also do work as a sysadmin and as technician. I am also a guy who likes cloud technologies and being the joker of the class. Maybe I am a nerd afterall.
